@@ -9,7 +9,7 @@
 - 🌱 I’m currently learning AI FOR EVERYONE by Deeplearning.AI, Math for machine learning like linear algebra and much more there is to know about machine learning and i am also learning how to make a game in UE5.
   
 - 🧠 My expertise are the coding languages I mentioned in (my main interest) but thats not all i know over the past year i have gained skills like 3d animation in blender, game development in unreal engine 5
-- graphic designing in Adobe Photoshop and canva and some other hobbies like the rubicks cubes ranging from the 2x2 to the 7x7, the megaminx, the gear cube and the X cube along that i know a little bit of magic tricks
+- graphic designing in After Effects and canva and some other hobbies like the rubicks cubes ranging from the 2x2 to the 7x7, the megaminx, the gear cube and the X cube along that i know a little bit of magic tricks
 - with playing cards.
   
 - 📫 You can reach me at sannanahmed789@gmail.com
